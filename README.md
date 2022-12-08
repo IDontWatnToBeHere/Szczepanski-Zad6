@@ -1,0 +1,1 @@
+# Szczepanski-Zad6
